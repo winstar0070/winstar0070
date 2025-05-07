@@ -16,7 +16,6 @@
 ## 🏢 Current Affiliations
 
 - **스텔라아이티(주)** (2022.01 ~ Present)
-- **Stella IT USA, LLC** (2021.07 ~ Present)
 
 ---
 
